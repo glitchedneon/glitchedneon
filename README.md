@@ -27,13 +27,15 @@
 
 𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Red, Pink, Gold, Dark Blue, Cyan, White, Orange, Purple
 
+𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, rabbits & bunnies, large dogs, foxes, snakes, sharks
+
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
 
 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 - english (best), german (very good), polish (good at speaking, bad at reading & writing)
 
 ## ꫂ 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬  .°ヾ(⁠♡╹◡╹)ﾉ🔪 (will add more)
 
-𝑮𝒂𝒎𝒆𝒔 - Total War: Warhammer 3, Warhammer 40K, Warframe, Undertale, Monster Prom, The Witcher 3, Skyrim: The Elder Scrolls V, Alice: Madness Returns, Age of Wonders 4, Cult of The Lamb, WAKFU, Mortal Kombat SNES, Mortal Kombat 11, Ponytown
+𝑮𝒂𝒎𝒆𝒔 - Total War: Warhammer 3, Warhammer 40K, Warframe, Undertale, Monster Prom, The Witcher 3, Skyrim: The Elder Scrolls V, Alice: Madness Returns, Age of Wonders 4, Cult of The Lamb, WAKFU, Mortal Kombat SNES, Mortal Kombat 11, Ponytown, The Freak Circus, Mushroom Oasis
 
 𝑴𝒐𝒗𝒊𝒆𝒔 - Pearl, Obsession, The Ritual, Lord of The Rings, The Mummy, Scream, Spirited Away, Princess Mononoke, My Neighbor Totoro, Howl's Moving Castle, Legend of The Guardians: Owls of Ga'Hoole, The Bad Guys, Puss In Boots: The Last Wish, Predator, Alien
 
