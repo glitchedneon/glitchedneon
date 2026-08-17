@@ -37,4 +37,10 @@
 
 𝑴𝒐𝒗𝒊𝒆𝒔 - Pearl, Obsession, The Ritual, Lord of The Rings, The Mummy, Scream, Spirited Away, Princess Mononoke, My Neighbor Totoro, Howl's Moving Castle, Legend of The Guardians: Owls of Ga'Hoole, The Bad Guys, Puss In Boots: The Last Wish, Predator, Alien
 
-𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.)
+𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House
+
+𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns)
+
+˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
+
+# 𐔌 𝐄𝐧𝐝 𝐨𝐟 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧! 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠. ₊˚⊹ ᰔ
