@@ -13,18 +13,28 @@
 
 ⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹₊‧︵‿₊୨ᰔ୧₊‿︵‧₊⊹
 
-# ꒰ 𝐁𝐚𝐬𝐢𝐜 𝐈𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ૮₍ ´ ꒳ `₎ა ₊˚⊹🌸
+## ꒰ 𝐁𝐚𝐬𝐢𝐜 𝐈𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ૮₍ ´ ꒳ `₎ა ₊˚⊹🌸
 
-𝑁𝑎𝑚𝑒 - Neon, Hex, or Mel
+𝑵𝒂𝒎𝒆 - Neon, Hex, or Mel
 
-𝑃𝑟𝑜𝑛𝑜𝑢𝑛𝑠 - They/Them pref. She/Her is okay
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them pref. She/Her is okay
 
-𝑆𝑒𝑥𝑢𝑎𝑙𝑖𝑡𝑦 - Demi-Panromantic, Asexual
+𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi-Panromantic, Asexual
 
-𝐺𝑒𝑛𝑑𝑒𝑟 𝐼𝑑𝑒𝑛𝑡𝑖𝑡𝑦 - unlabeled. Potentially Girlflux
+𝑮𝒆𝒏𝒅𝒆𝒓 - unlabeled. Potentially Girlflux
 
-𝐷𝑂𝐵  - 21 August
+𝑫𝑶𝑩  - 21 August
 
-𝐿𝑜𝑐𝑎𝑡𝑖𝑜𝑛 - France. (And no, I am NOT french.)
+𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Red, Pink, Gold, Dark Blue, Cyan, White, Orange, Purple
 
-𝐿𝑎𝑛𝑔𝑢𝑎𝑔𝑒𝑠 - english (best), german (very good), polish (good at speaking, bad at reading & writing)
+𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
+
+𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 - english (best), german (very good), polish (good at speaking, bad at reading & writing)
+
+## ꫂ 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬  .°ヾ(⁠♡╹◡╹)ﾉ🔪 (will add more)
+
+𝑮𝒂𝒎𝒆𝒔 - Total War: Warhammer 3, Warhammer 40K, Warframe, Undertale, Monster Prom, The Witcher 3, Skyrim: The Elder Scrolls V, Alice: Madness Returns, Age of Wonders 4, Cult of The Lamb, WAKFU, Mortal Kombat SNES, Mortal Kombat 11, Ponytown
+
+𝑴𝒐𝒗𝒊𝒆𝒔 - Pearl, Obsession, The Ritual, Lord of The Rings, The Mummy, Scream, Spirited Away, Princess Mononoke, My Neighbor Totoro, Howl's Moving Castle, Legend of The Guardians: Owls of Ga'Hoole, The Bad Guys, Puss In Boots: The Last Wish, Predator, Alien
+
+𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.)
