@@ -1,15 +1,12 @@
-# ꒷꒦︶꒷꒦︶ ๋₊ · »-🩷→  𝐖𝐞𝐥𝐜𝐨𝐦𝐞, 𝐈 𝐠𝐮𝐞𝐬𝐬. ۶ৎ ꒷꒦︶ ๋ ࣭ ⭑︶꒷꒦   
+#  <p align="center">"꒷꒦︶꒷꒦︶ ๋₊ · »-🩷→  𝐖𝐞𝐥𝐜𝐨𝐦𝐞, 𝐈 𝐠𝐮𝐞𝐬𝐬. ۶ৎ ꒷꒦︶ ๋ ࣭ ⭑︶꒷꒦" 
+<p align="center">
+<img src="demo.gif" alt="animated" />
+<img width="250" height="250" alt="giphy" src="https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3ZmtiZHA5YXV4N2s3ZXA3d3NsZG01OGN0eWNnMmVqNXFwYjN3amZyayZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/0jX3XiW2ABBXYmxKfw/giphy.gif" /p>
+ 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
-
-
-
-<img src="(https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY21xaWQxMGlwaHBiNzNnZnF1dTJ3eHMwandxaWM5OHJ2cGF3cDJzYiZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/13kViJRlB2PAAg/giphy.gif)"/>
-
-
-
-
 ### ✧ 𝐵𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑝𝑟𝑜𝑐𝑒𝑒𝑑, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑟𝑒𝑎𝑑 𝑚𝑦 𝐷𝑁𝐼;
+
 
 ✦ Do not interact with me, if you have sexual intentions with me. I'm not interested in that bullshit. And sexual jokes & joke flirting are only okay with good friends. You'll be able to tell by me joking back. If I keep saying "lol", "nah" or "lmao" and those are my ONLY responses to your jokes (and I mean ONLY) - then you should leave me tf alone. I am a patient & enduring person, but that can run out quickly, depending on my mood.
  
@@ -23,11 +20,15 @@
 
 ## ꒰ 𝐁𝐚𝐬𝐢𝐜 𝐈𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ૮₍ ´ ꒳ `₎ა ₊˚⊹🌸
 
+<img src="demo.gif" alt="animated" />
+<img width="250" height="250" alt="giphy" src="https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3czdjYjBhZmFwemthd2h1NDVlNWQwbzljcnp4N282ZXd1dHhsYW43aCZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/GyAHkTWspXZBxCTdas/giphy.gif" /p>
+
 𝑵𝒂𝒎𝒆 - Neon, Hex, or Mel
 
 𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them pref. She/Her is okay
 
 𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi-Panromantic, Asexual
+
 
 𝑮𝒆𝒏𝒅𝒆𝒓 - unlabeled. Androgynous expression
 
@@ -54,3 +55,7 @@
 ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
 
 # 𐔌 𝐄𝐧𝐝 𝐨𝐟 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧! 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠. ₊˚⊹ ᰔ
+
+<p align="center">
+<img src="demo.gif" alt="animated" />
+<img width="250" height="250" alt="giphy" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGV4bDVpNXoyZ2kwMHg3bGR0cjJyY2k3c2l0dnFkcm9jenc0MGs0YiZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/ryfsXVufhaSFb9jcYB/giphy.gif" /p>
