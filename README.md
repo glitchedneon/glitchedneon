@@ -4,7 +4,7 @@
 
 
 
-<img src="[(a link to the gif or image)](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY21xaWQxMGlwaHBiNzNnZnF1dTJ3eHMwandxaWM5OHJ2cGF3cDJzYiZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/13kViJRlB2PAAg/giphy.gif)"/>
+<img src="(https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY21xaWQxMGlwaHBiNzNnZnF1dTJ3eHMwandxaWM5OHJ2cGF3cDJzYiZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/13kViJRlB2PAAg/giphy.gif)"/>
 
 
 
