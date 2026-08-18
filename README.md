@@ -1,7 +1,7 @@
 # ꒷꒦︶꒷꒦︶ ๋₊ · »-🩷→  𝐖𝐞𝐥𝐜𝐨𝐦𝐞, 𝐈 𝐠𝐮𝐞𝐬𝐬. ۶ৎ ꒷꒦︶ ๋ ࣭ ⭑︶꒷꒦   
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
-<img src="[(](https://www.deviantart.com/arilee25/art/Kawaii-Strawberry-Transparent-Gif-1002043021)"/>
+<img src="[[(](https://www.deviantart.com/arilee25/art/Kawaii-Strawberry-Transparent-Gif-1002043021)](https://pin.it/5ECC1MdJ9)"/>
 
 ### ✧ 𝐵𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑝𝑟𝑜𝑐𝑒𝑒𝑑, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑟𝑒𝑎𝑑 𝑚𝑦 𝐷𝑁𝐼;
 
