@@ -50,7 +50,7 @@
 
 𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House
 
-𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns)
+𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio)
 
 ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
 
