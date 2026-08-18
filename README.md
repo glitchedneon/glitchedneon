@@ -21,7 +21,7 @@
 
 𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi-Panromantic, Asexual
 
-𝑮𝒆𝒏𝒅𝒆𝒓 - unlabeled. Potentially Girlflux
+𝑮𝒆𝒏𝒅𝒆𝒓 - unlabeled. Androgynous expression
 
 𝑫𝑶𝑩  - 21 August
 
