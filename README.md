@@ -1,6 +1,8 @@
 # ꒷꒦︶꒷꒦︶ ๋₊ · »-🩷→  𝐖𝐞𝐥𝐜𝐨𝐦𝐞, 𝐈 𝐠𝐮𝐞𝐬𝐬. ۶ৎ ꒷꒦︶ ๋ ࣭ ⭑︶꒷꒦   
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶
 
+<img src="[(](https://www.deviantart.com/arilee25/art/Kawaii-Strawberry-Transparent-Gif-1002043021)"/>
+
 ### ✧ 𝐵𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑝𝑟𝑜𝑐𝑒𝑒𝑑, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑟𝑒𝑎𝑑 𝑚𝑦 𝐷𝑁𝐼;
 
 ✦ Do not interact with me, if you have sexual intentions with me. I'm not interested in that bullshit. And sexual jokes & joke flirting are only okay with good friends. You'll be able to tell by me joking back. If I keep saying "lol", "nah" or "lmao" and those are my ONLY responses to your jokes (and I mean ONLY) - then you should leave me tf alone. I am a patient & enduring person, but that can run out quickly, depending on my mood.
