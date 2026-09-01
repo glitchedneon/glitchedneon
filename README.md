@@ -21,7 +21,7 @@
 ## ꒰ 𝐁𝐚𝐬𝐢𝐜 𝐈𝐧𝐟𝐨 𝐚𝐛𝐨𝐮𝐭 𝐦𝐞 ૮₍ ´ ꒳ `₎ა ₊˚⊹🌸
 
 <img src="demo.gif" alt="animated" />
-<img width="250" height="250" alt="giphy" src="https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3czdjYjBhZmFwemthd2h1NDVlNWQwbzljcnp4N282ZXd1dHhsYW43aCZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/GyAHkTWspXZBxCTdas/giphy.gif" /p>
+<img width="250" height="250" alt="giphy" src="https://media.tenor.com/fMXiYeDrEtQAAAAi/transparent-fluttershy.gif" /p>
 
 𝑵𝒂𝒎𝒆 - Neon, Hex, or Mel
 
