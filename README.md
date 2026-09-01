@@ -23,9 +23,9 @@
 <img src="demo.gif" alt="animated" />
 <img width="250" height="250" alt="giphy" src="https://media.tenor.com/fMXiYeDrEtQAAAAi/transparent-fluttershy.gif" /p>
 
-𝑵𝒂𝒎𝒆 - Neon, Hex, or Mel
+𝑵𝒂𝒎𝒆 - Mel, Flux, or Neon
 
-𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them pref. She/Her is okay
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them pref. She/Her is fine too.
 
 𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi-Panromantic, Asexual
 
@@ -36,7 +36,7 @@
 
 𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Red, Pink, Gold, Dark Blue, Cyan, White, Orange, Purple
 
-𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, rabbits & bunnies, large dogs, foxes, snakes, sharks
+𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, rabbits & bunnies, large canines, foxes, snakes, sharks, butterflies & moths, owls
 
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
 
@@ -48,9 +48,9 @@
 
 𝑴𝒐𝒗𝒊𝒆𝒔 - Pearl, Obsession, The Ritual, Lord of The Rings, The Mummy, Scream, Spirited Away, Princess Mononoke, My Neighbor Totoro, Howl's Moving Castle, Legend of The Guardians: Owls of Ga'Hoole, The Bad Guys, Puss In Boots: The Last Wish, Predator, Alien
 
-𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House
+𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House, My Little Pony: Friendship is Magic
 
-𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio)
+𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio), Fluttershy (MLP)
 
 ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
 
