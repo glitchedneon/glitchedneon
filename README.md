@@ -41,9 +41,13 @@
 
 𝑫𝑶𝑩  - 21 August
 
+𝑹𝒂𝒄𝒆 - Mixed Slavic (idek why that's important to some ppl but whatev)
+
 𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Dark Red, Pink, Gold, Dark Blue, White, Orange, Purple
 
 𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, wolves, big dogs, foxes, snakes, sharks, butterflies & moths, owls
+
+𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - Still figuring out, most likely wolf or fox
 
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
 
@@ -58,6 +62,8 @@
 𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House, My Little Pony: Friendship is Magic
 
 𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio), Fluttershy (MLP)
+
+𝑶𝒕𝒉𝒆𝒓 - talking about nature, animals, biology etc...
 
 
 ###  ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃.ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃 ᨒ↟ 𖠰 𓍢🌿༄.🍃.ೃ࿔･.ᨒ↟ 𖠰˖𓍢ִ໋`🌿༄˖.🍃.ೃ࿔:･ ݁ ᨒ↟ 𖠰˖🌿༄˖.🍃.ೃ
