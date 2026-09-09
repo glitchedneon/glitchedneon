@@ -64,7 +64,7 @@
 
 𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House, My Little Pony: Friendship is Magic
 
-𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Jinx (Arcane version), Ochaco Uraraka (MHA), Himiko Toga (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), normal Nikki (Obsession), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio), Fluttershy (MLP)
+𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Ochaco Uraraka (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio), Fluttershy (MLP), Loona (Helluva Boss)
 
 𝑶𝒕𝒉𝒆𝒓 - talking about nature, animals, biology etc...
 
