@@ -49,6 +49,8 @@
 
 𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - Still figuring out, most likely wolf or fox
 
+𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Cottagecore, Witchcore, Gothic, Celestialcore
+
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
 
 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 - english (best), german (very good), polish (good at speaking, bad at reading & writing)
