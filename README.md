@@ -49,6 +49,10 @@
 
 𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - Still figuring out, most likely wolf or fox
 
+𝑭𝒂𝒗 𝑺𝒆𝒂𝒔𝒐𝒏 - Fall & Winter
+
+𝑭𝒂𝒗 𝑾𝒆𝒂𝒕𝒉𝒆𝒓 - Foggy/misty and cold. 14 degrees in celsius is perfect for me.
+
 𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Cottagecore, Witchcore, Gothic, Celestialcore
 
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
@@ -70,6 +74,19 @@
 
 𝑶𝒕𝒉𝒆𝒓 - talking about nature, animals, biology etc...
 
+## .𖥔 ݁ ˖𝐁𝐨𝐮𝐧𝐝𝐚𝐫𝐢𝐞𝐬/𝐖𝐡𝐚𝐭 𝐍𝐎𝐓 𝐭𝐨 𝐝𝐨 𝐰𝐢𝐭𝐡 𝐦𝐞 ! ⏾⋆.˚
+
+Please do not tell me multiple times in a row how much you wanna fuck a character or person. I respect & understand that you might feel sexually attracted towards them, but I do not really want to hear it multiple times in a row as it makes me uncomfortable. However, if you say it once every while, I really don't care. I actually ended up snapping at someone due to them disrespecting this boundary MANY times, and they ended up causing drama and ghosting me like a toddler throwing a tantrum instead of trying to sort it out properly. XD
+
+Do not sexualize any of my OCs or/and me. I do not do/say anything for anyone's sexual amusement... And I'm looking forward to it staying that way. 
+
+Please do not take inspo off of my characters, unless its NOT obvious at all. Like, literally unrecognizeable, then go ahead, as long as nobody can tell u took inspo.
+
+Please do not talk to me abt politics. I prefer to stay out of it. I don't like the system, never did and never will.
+
+Do not copy any skins I make on any games please, and do not draw my skins or OCs without my permission. 
+
+Disrespecting any of these boundaries will lead to me asking you to stop. Depending on if you stop the first time I ask or choose to keep going, I will either ask you politely again or confront you less politely, which heavily depends on my mood and mindset in that moment. If you keep disrespecting, despite multiple times of me asking you to stop, I will not hesitate to cut you off.
 
 ###  ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃.ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃 ᨒ↟ 𖠰 𓍢🌿༄.🍃.ೃ࿔･.ᨒ↟ 𖠰˖𓍢ִ໋`🌿༄˖.🍃.ೃ࿔:･ ݁ ᨒ↟ 𖠰˖🌿༄˖.🍃.ೃ
  
