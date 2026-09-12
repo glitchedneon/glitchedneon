@@ -59,7 +59,7 @@
 
 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 - english (best), german (very good), polish (good at speaking, bad at reading & writing)
 
-𝑹𝒂𝒏𝒅𝒐𝒎 𝑭𝒂𝒄𝒕 𝒂𝒃𝒕 𝒎𝒆 - I respect people of all nationalities, beliefs, identities etc as long as I get respected too, and as long as there's no harming other living beings involved!
+𝑹𝒂𝒏𝒅𝒐𝒎 𝑭𝒂𝒄𝒕 𝒂𝒃𝒕 𝒎𝒆 -  1. I respect people of all nationalities, beliefs, identities etc as long as I get respected too, and as long as there's no harming other living beings involved!  2. I use XD and LMAO alot.
 
 
 ## ꫂ☆ 𝐈𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬  ݁˚.⋆ ᨒ↟ 𖠰 ˚⊹ ݁⭒˚.⋆˖ (will add more)
