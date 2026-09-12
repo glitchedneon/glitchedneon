@@ -88,6 +88,8 @@ Do not copy any skins I make on any games please, and do not draw my skins or OC
 
 Disrespecting any of these boundaries will lead to me asking you to stop. Depending on if you stop the first time I ask or choose to keep going, I will either ask you politely again or confront you less politely, which heavily depends on my mood and mindset in that moment. If you keep disrespecting, despite multiple times of me asking you to stop, I will not hesitate to cut you off.
 
+if you have any questions regarding my boundaries, feel free to ask me!
+
 ###  ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃.ᨒ↟ 𖠰˖𓍢ִ🌿༄˖.🍃 ᨒ↟ 𖠰 𓍢🌿༄.🍃.ೃ࿔･.ᨒ↟ 𖠰˖𓍢ִ໋`🌿༄˖.🍃.ೃ࿔:･ ݁ ᨒ↟ 𖠰˖🌿༄˖.🍃.ೃ
  
 # 𐔌 𝐄𝐧𝐝 𝐨𝐟 𝐈𝐧𝐭𝐫𝐨𝐝𝐮𝐜𝐭𝐢𝐨𝐧! 𝐓𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐫𝐞𝐚𝐝𝐢𝐧𝐠. 🐺₊˚⊹ 🌒
