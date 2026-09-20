@@ -33,9 +33,9 @@
 
 𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them
 
-𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi-Biromantic, Asexual
+𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi Biromantic, Asexual
 
-𝑮𝒆𝒏𝒅𝒆𝒓 - Agender
+𝑮𝒆𝒏𝒅𝒆𝒓 - Girlflux; I feel genderless but also feminine. The amount of each varies and changes.
 
 𝑩𝒆𝒍𝒊𝒆𝒇 - Animism & Eclectic
 
