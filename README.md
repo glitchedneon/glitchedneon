@@ -10,7 +10,7 @@
 ### ✧ 𝐵𝑒𝑓𝑜𝑟𝑒 𝑦𝑜𝑢 𝑝𝑟𝑜𝑐𝑒𝑒𝑑, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑟𝑒𝑎𝑑 𝑚𝑦 𝐷𝑁𝐼;
 
 
-✦ Do not interact with me, if you have sexual intentions with me. I'm not interested in that bullshit. And sexual jokes & joke flirting are only okay with good friends. You'll be able to tell by me joking back. If I keep saying "lol", "nah" or "lmao" and those are my ONLY responses to your jokes (and I mean ONLY) - then you should leave me tf alone. I am a patient & enduring person, but that can run out quickly, depending on my mood.
+✦ Do not interact with me, if you have sexual intentions with me. I'm not interested in that bullshit. And sexual jokes & joke flirting are only okay with good friends. You'll be able to tell by me joking back. If I keep saying "lol", "nah" or "lmao" and those are my ONLY responses to your jokes (and I mean ONLY) - then you should leave me tf alone. I am a patient & enduring person, but that can run out quickly, depending on my mood. That includes trying to involve me in your fetishes and kinks, I'm fine with u talking abt it if u need to, but do not try to pull me into it and/or involve me in it.
  
 ✧ Do not interact with me if you feel attracted to 18- or animals. If you feel attracted to furries, idc, I respect you.
 
@@ -29,9 +29,9 @@
 <img src="demo.gif" alt="animated" />
 <img width="250" height="250" alt="giphy"src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDZydXMzYjMyYnhwOXZpOXh0N3o4NG91NGt1aWlycHlnMWY4NjAxdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/bDgIsugUxWUAA5MOy4/giphy.gif"/p>
 
-𝑵𝒂𝒎𝒆 - Mel, Flux
+𝑵𝒂𝒎𝒆 - Mel
 
-𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/Them
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/She
 
 𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi Biromantic, Asexual
 
@@ -43,9 +43,9 @@
 
 𝑹𝒂𝒄𝒆 - Mixed Slavic (idek why that's important to some ppl but whatev)
 
-𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Dark Red, Pink, Gold, Dark Blue, White, Orange, Purple
+𝑭𝒂𝒗 𝑪𝒐𝒍𝒐𝒓𝒔 - Black, Dark Red, Gold, Dark Blue, White, Orange, Purple
 
-𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, wolves, big dogs, foxes, snakes, sharks, butterflies & moths, owls
+𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, wolves, big dogs, foxes, snakes, sharks, butterflies & moths, owls, bats, dragons, phoenixes
 
 𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - Still figuring out, most likely wolf or fox
 
@@ -53,7 +53,7 @@
 
 𝑭𝒂𝒗 𝑾𝒆𝒂𝒕𝒉𝒆𝒓 - Foggy/misty and cold. 14 degrees in celsius is perfect for me.
 
-𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Cottagecore, Witchcore, Gothic, Celestialcore
+𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Cottagecore, Gothic, Whimsygoth
 
 𝑳𝒐𝒄𝒂𝒕𝒊𝒐𝒏 - France. (And no, I am NOT french.)
 
