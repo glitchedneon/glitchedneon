@@ -31,13 +31,13 @@
 
 𝑵𝒂𝒎𝒆 - Mel
 
-𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - They/She
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - She/They
 
 𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi Biromantic, Asexual
 
 𝑮𝒆𝒏𝒅𝒆𝒓 - Girlflux; I feel genderless but also feminine. The amount of each varies and changes.
 
-𝑩𝒆𝒍𝒊𝒆𝒇 - Animism & Eclectic
+𝑩𝒆𝒍𝒊𝒆𝒇 - Eclectic
 
 𝑫𝑶𝑩  - 21 August
 
