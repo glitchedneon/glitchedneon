@@ -29,13 +29,13 @@
 <img src="demo.gif" alt="animated" />
 <img width="250" height="250" alt="giphy"src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDZydXMzYjMyYnhwOXZpOXh0N3o4NG91NGt1aWlycHlnMWY4NjAxdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/bDgIsugUxWUAA5MOy4/giphy.gif"/p>
 
-𝑵𝒂𝒎𝒆 - Mel
+𝑵𝒂𝒎𝒆 - Moon (preferred) Mel (most ppl know me as this) but pls do call me by my pref name
 
 𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - She/They
 
-𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi Biromantic, Asexual
+𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demiromantic Biromantic, Asexual
 
-𝑮𝒆𝒏𝒅𝒆𝒓 - Girlflux; I feel genderless but also feminine. The amount of each varies and changes.
+𝑮𝒆𝒏𝒅𝒆𝒓 - Girlflux
 
 𝑩𝒆𝒍𝒊𝒆𝒇 - Eclectic
 
