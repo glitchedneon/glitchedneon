@@ -37,13 +37,13 @@
 <img src="demo.gif" alt="animated" />
 <img width="250" height="250" alt="giphy"src="https://media.tenor.com/bsZ7yYosGu4AAAAi/chiaralbart-hands-up.gif"/p>
 
-𝑵𝒂𝒎𝒆 - Moon (preferred) Mel (most ppl know me as this)
+𝑵𝒂𝒎𝒆 - Phoenix (preferred), Mel (I introduced myself to most ppl as this)
 
-𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - She/They
+𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 - She/Her
 
-𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi & Biromantic, Asexual  (in a happy relationship
+𝑺𝒆𝒙𝒖𝒂𝒍𝒊𝒕𝒚 - Demi & Biromantic, Asexual  (in a happy relationship)
 
-𝑩𝒆𝒍𝒊𝒆𝒇 - Animist & Polytheist. I instictively follow the Universal Law of Divine Order.
+𝑩𝒆𝒍𝒊𝒆𝒇 - Animist & Polytheist. I instictively follow the Universal Law of Divine Order, and see animals as family.
 
 𝑫𝑶𝑩  - 21 August
 
@@ -53,13 +53,13 @@
 
 𝑭𝒂𝒗 𝑨𝒏𝒊𝒎𝒂𝒍𝒔 - corvids, wolves ( and canines in general ), butterflies & moths, felines, owls, bats, dragons, phoenixes
 
-𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - unsure. Suspected; Wolf and/or Lioness
+𝑺𝒑𝒊𝒓𝒊𝒕 𝑨𝒏𝒊𝒎𝒂𝒍/𝑨𝒏𝒊𝒎𝒂𝒍 𝑻𝒘𝒊𝒏 - unsure
 
 𝑭𝒂𝒗 𝑺𝒆𝒂𝒔𝒐𝒏 - Fall
 
 𝑭𝒂𝒗 𝑾𝒆𝒂𝒕𝒉𝒆𝒓 - Foggy and cold. 10 degrees in celsius is perfect for me.
 
-𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Mix of Whimsigoth & Celestialcore
+𝑴𝒚 𝑨𝒆𝒔𝒕𝒉𝒆𝒕𝒊𝒄𝒔 - Mix of Whimsigoth, Cottagecore & Bohemian
 
 𝑳𝒂𝒏𝒈𝒖𝒂𝒈𝒆𝒔 - english (best), german (fluent), polish (good at speaking, bad at reading & writing)
 
@@ -72,7 +72,7 @@
 
 𝑴𝒐𝒗𝒊𝒆𝒔 - Pearl, Obsession, The Ritual, Lord of The Rings, The Mummy, Scream, Spirited Away, Princess Mononoke, My Neighbor Totoro, Howl's Moving Castle, Legend of The Guardians: Owls of Ga'Hoole, The Bad Guys, Puss In Boots: The Last Wish, Predator, Alien
 
-𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Jujutsu Kaisen, Kengan Ashura, Chilling Adventures of Sabrina (Netflix ver.), The Owl House, My Little Pony: Friendship is Magic
+𝑺𝒉𝒐𝒘𝒔 - Arcane, Wednesday, Hazbin Hotel & Helluva Boss, My Hero Academia, Chilling Adventures of Sabrina (Netflix ver.), The Owl House, My Little Pony: Friendship is Magic
 
 𝑲𝒊𝒏 𝑪𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 - Diane Foxington (The Bad Guys), Ochaco Uraraka (MHA), Sayori (DDLC), Maki Zenin (JJK), Princess Mononoke (Princess Mononoke), Alice Liddell (Alice: Madness Returns), My Melody (Sanrio), Fluttershy (MLP), Loona (Helluva Boss), Octavia (Helluva Boss)
 
